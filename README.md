@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sumsung524
 - enmmm....Don't know what to write
-- 👀 My personal website address:[肆零肆](https://xmq.plus)
+- 👀 My personal website address: [肆 零 肆](https://xmq.plus)
 - 🌱 maybe you like it...mabe not.
 - 💞️ nothing to type...
 - 📫 that's all~
